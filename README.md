@@ -1,2 +1,0 @@
-# portfolio
-Stuti kumari portfolio
